@@ -1,1 +1,1 @@
-# THE CREATOR (ザ・クリエイター)
+# THE CREATOR （ザ・クリエイター）
